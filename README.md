@@ -10,7 +10,7 @@
 
 mendes.gabriella18@escola.pr.gov.br
 
-![]()![image](https://github.com/user-attachments/assets/13bd9fb6-f339-4859-bf76-7285b7aeac4d)
+![]()![GIF](https://github.com/user-attachments/assets/13bd9fb6-f339-4859-bf76-7285b7aeac4d)
 
 
 
